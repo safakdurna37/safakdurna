@@ -1,0 +1,2 @@
+# safakdurna
+Sizleri seviyorum
